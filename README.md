@@ -8,7 +8,7 @@
 
 ### Correo: 47442659@sencico.edu.pe // aurischavezjocelyn@gmail.com
 
-### Teléfono: 927173700
+### Teléfono: 927173700 // 982172925
 
 ### Fecha Inicio: 16/06/2025
 
